@@ -2,7 +2,7 @@ Hi, I’m Linchen Xu, currently working to make contributions to Apache Dubbo co
 
 
 
-Reach out: [xulinchen98@gmail.com](mailto:xulinchen98@gmail.com)
+Contact Me: [xulinchen98@gmail.com](mailto:xulinchen98@gmail.com)
 
 
 
